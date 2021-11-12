@@ -1,1 +1,1 @@
-Estou achando este curso incrivel!!!
+Estou gostando muito deste curso, aprendendo sempres coisas novas!!!!
